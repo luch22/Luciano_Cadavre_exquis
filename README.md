@@ -6,3 +6,9 @@
 _Mais malheureusement pout lui il était complétement seul dans sa bibliothèque_
 
 ~~Heureusement il avais une vue sur le sexe shop en face~~
+
+## Un jour il interpela un client régulier en frappant à la fenêtre.
+
+*Il lui demanda le modèle de ses chaussures car il les aime beaucoup*.
+
+**Le client se moqua de lui car il n'était qu'un livre sans pieds**. 
