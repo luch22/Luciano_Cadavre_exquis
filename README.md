@@ -11,3 +11,9 @@ Merlin
 *Son compagnon nommé pitbull est avec lui*
 
 **Leur but est toujours inconnu**
+
+N'ayant pas de bras il ne pouvais pas caliner **pitbull**.
+
+Il lui montrait sa *sympathie* par un coup de boule.
+
+Ils marchaient ensemble pendant **plusieurs jours**.
