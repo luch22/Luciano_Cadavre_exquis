@@ -1,7 +1,7 @@
 # Luciano_Cadavre_exquis
 >Il était une fois un bouquin magique
 
-**Le bouqui savait parler de nombreuse langue et dialecte**
+**Le bouquin savait parler de nombreuse langues et dialectes**
 
 _Mais malheureusement pout lui il était complétement seul dans sa bibliothèque_
 
